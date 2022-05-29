@@ -2,7 +2,7 @@
 搜集了一些迅雷破解版，登录就有vip
 
 
-[其他版本]
+
 
 https://github.com/littleostar-toolbox/thunder-superquick-version-tool-dl
 
@@ -16,3 +16,5 @@ https://github.com/littleostar-toolbox/thunder-superquick-version-tool-dl
 部分安装版也过大
 
 绿色版文件过大不能放在这里
+
+[友情链接]
