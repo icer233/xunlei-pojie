@@ -30,4 +30,4 @@
 
 [免费迅雷会员账号](http://www.zhanghao.cc/)
 
-[百度迅雷vip]https://github.com/VIP-Share/Baidu-XunleiVIP()
+[百度迅雷vip](https://github.com/VIP-Share/Baidu-XunleiVIP)
