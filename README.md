@@ -27,3 +27,7 @@
 ## 友情链接
 
 [littleostar-toolbox](https://github.com/littleostar-toolbox/thunder-superquick-version-tool-dl)
+
+[免费迅雷会员账号](http://www.zhanghao.cc/)
+
+[百度迅雷vip]https://github.com/VIP-Share/Baidu-XunleiVIP()
