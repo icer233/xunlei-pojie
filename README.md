@@ -7,6 +7,9 @@
 
 [迅雷hk](https://github.com/icer233/xunlei-pojie/files/8792603/hk.zip)
 
+[迅雷7](https://github.com/icer233/xunlei-pojie/files/8792616/XunLei.zip)
+
+
 部分安装版也过大
 
 
