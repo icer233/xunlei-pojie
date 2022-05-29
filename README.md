@@ -1,5 +1,12 @@
-# xunlei-pojie
+# 迅雷破解版
 搜集了一些迅雷破解版，登录就有vip
+
+## 推荐方法
+
+先上传到云盘再下载吊打任何破解版！！！
+
+![6b04850546f25bd0fdba60ecfe23b68](https://user-images.githubusercontent.com/74440627/170853851-100abe25-dea0-4c3f-b015-999dce2d90cf.png)
+
 
 ## 安装版
 
