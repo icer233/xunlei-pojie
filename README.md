@@ -16,13 +16,6 @@
 
 [迅雷7](https://github.com/icer233/xunlei-pojie/files/8792616/XunLei.zip)
 
-
-部分安装版也过大
-
-
-## 绿色版
-
-文件过大不能放在这里
 [刺客边风版本](https://pan.baidu.com/s/1hiGkVXG7ReA4aaKjJIYxiQ?pwd=nkbw#list/path=%2F%E5%88%BA%E5%AE%A2%E8%BE%B9%E9%A3%8E%EF%BC%81%E8%BF%85%E9%9B%B711%20SVIP%EF%BC%8C10MBs%EF%BC%9F%E7%BA%AF%E5%87%80%E6%97%A0%E5%B9%BF%E5%91%8A%EF%BC%88%E9%99%84%E4%B8%8B%E8%BD%BD%EF%BC%89)
 
 ## 友情链接
