@@ -20,6 +20,9 @@
 
 [迅雷小强版](https://wwc.lanzouf.com/icQZb063qpta)
 
+[迅雷不限速版](https://705.lanzouw.com/i43yE03rlqjc)
+
+[迅雷11会员版](https://705.lanzouw.com/inLpG06v5i9a)
 
 ## 友情链接
 
