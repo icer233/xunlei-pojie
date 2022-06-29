@@ -8,7 +8,7 @@
 ![6b04850546f25bd0fdba60ecfe23b68](https://user-images.githubusercontent.com/74440627/170853851-100abe25-dea0-4c3f-b015-999dce2d90cf.png)
 
 
-## 安装版
+## 下载链接
 
 [迅雷极速破解版](https://github.com/icer233/xunlei-pojie/files/8792602/default.zip)
 
@@ -23,6 +23,8 @@
 [迅雷不限速版](https://705.lanzouw.com/i43yE03rlqjc)
 
 [迅雷11会员版](https://705.lanzouw.com/inLpG06v5i9a)
+
+[迅雷U享版去限制版+迅雷9极限精简版+迅雷11绿色精简版,密码7ofw](https://isharepc.lanzoul.com/b0dm99dmj)
 
 ## 友情链接
 
